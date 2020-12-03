@@ -1,0 +1,1 @@
+Rasgulla is a milk based sweet made by curdling milk, draining the whey and kneading the milk solids to make balls. These balls are cooked in hot sugar syrup until light & spongy.
